@@ -1,0 +1,1 @@
+# Marketing-Strategies-based-on-attractions-segmentation-
